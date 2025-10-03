@@ -1,1 +1,2 @@
-# sss-rank-paladin-who-transcends-common-sensen
+# SSS-Rank Paladin Who Transcends Common Sensen
+Le jeu est entré dans la réalité, les monstres se déchaînent, les catastrophes magiques débordent, chacun doit choisir une classe et monter en niveau pour devenir plus fort. Zhou Yi, qui n’avait rien de remarquable jusqu’à présent, a éveillé le talent de rang S+ Protection de l’ange sacré le jour de l’éveil de classe, transformant sa classe en classe cachée Chevalier sacré ! Bénédiction de l’arme, bénédiction de l’ange, bénédiction de l’honneur… Avec toutes sortes d’améliorations, Zhou Yi détruisait l’espace lui-même avec sa seule aura. Qui a dit que le Chevalier sacré n’était qu’une classe banale ?
