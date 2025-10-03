@@ -1,0 +1,1 @@
+# sss-rank-paladin-who-transcends-common-sensen
